@@ -1,2 +1,2 @@
-![cred schizou](https://github.com/user-attachments/assets/6b33e65a-4d14-4056-9421-b6089bbf6352)
-⠀⠀⠀⠀⠀⠀⠀<sub>rowan⠀⠀⠀⠀hehim⠀⠀⠀⠀5teen</sub>
+<sub>![cred schizou](https://i.imgur.com/7exifUp.gif)</sub>
+⠀⠀⠀⠀⠀⠀⠀<sub>**rowan⠀⠀⠀⠀hehim⠀⠀⠀⠀5teen**</sub>
