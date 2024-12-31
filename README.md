@@ -1,4 +1,4 @@
-![cred schizsou](https://github.com/user-attachments/assets/dec7a911-b952-45e9-a87a-83b41cd62b70)
+![c9c558afd63c399527ffb8d028d093bc](https://github.com/user-attachments/assets/8d521d5e-3e83-439f-bde2-e01bfd9b9633)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub>**rowan⠀⠀⠀⠀hehim⠀⠀⠀⠀5teen**</sub>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub>**[strawpage](https://hayakawan.straw.page/)**</sub>
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=hayakawan&color=green&abbreviated=true)
