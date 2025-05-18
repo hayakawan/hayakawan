@@ -1,6 +1,7 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup>'⠀`belo sai *solo tu*` '</sup>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup>'⠀`belo sai *solo tu*` '</sup>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/a375c44b-26e3-4592-bbd2-fb62b61c8bba" width="400" height="400"/>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="(https://github.com/user-attachments/assets/fcd2360f-7002-4daf-9984-2eeb22318765)
+" width="400" height="60"/>
 ⠀⠀⠀⠀⠀⠀⠀
 <br/>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup>'⠀`*con i tuoi* occhi belli blu !` '</sup>
 
